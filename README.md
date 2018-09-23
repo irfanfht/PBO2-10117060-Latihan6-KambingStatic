@@ -1,0 +1,1 @@
+# PBO2-10117060-Latihan6-KambingStatic
